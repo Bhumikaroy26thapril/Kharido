@@ -1,2 +1,2 @@
 # Kharido
-Kharido 
+Shop Smart, Live Green.
